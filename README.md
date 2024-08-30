@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Max-wordPad
 - 👀 I’m interested in WordPad
 - 🌱 I’m currently learning how to walk
-- 💞️ I’m looking to collaborate on cost of rent
+- 💞️ I’m looking to collaborate on rent
 - 📫 How to reach me: 911
 - 😄 Pronouns: Big/Mac
 - ⚡ Fun fact: ...
